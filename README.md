@@ -1,1 +1,1 @@
-![ac @ - wait still scrolling thru my followings](https://github.com/user-attachments/assets/beb9b96b-2988-4828-bcce-fb217db3d341)
+![ac @ - wait still scrolling thru my followings](https://github.com/user-attachments/assets/ba024a9a-a33d-4810-91d6-ada83d258bfb)
